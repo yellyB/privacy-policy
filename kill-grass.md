@@ -28,4 +28,4 @@
 
 개인정보 관련 문의사항이 있으시면 아래로 연락해 주세요.
 
-이메일: yellyb@github.com
+이메일: yelly.oto@gmail.com
